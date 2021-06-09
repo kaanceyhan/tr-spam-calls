@@ -6,6 +6,7 @@
 - 0 (216) 212 54 56
 
 ## Operatör Reklamları
+
 - 0 (850) 215 24 00 - Vodafone Net
 - 0 (542) 509 30 70 - Vodafone Net
 
