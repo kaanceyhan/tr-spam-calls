@@ -9,4 +9,4 @@
 
 ## Check-Up
 
-## İnternet-Uydu
+## Devlet Destekli İnternet
